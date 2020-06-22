@@ -1,8 +1,7 @@
 # Advanced project Semester 1 Group 5
+Members
 Paa Kow Ewool -3574407
-
 Michael Ebowusim -4050630
-
 Yani Troev - 3956644
  
  

@@ -1,2 +1,8 @@
-ڝǝ#yRzg.*%ߞN̉ZzQn4Nц:z箸--zh0
-(~{;Zye߂
+**Members**
+
+* Paakow Ewool - 3574407
+
+* Michael Ebowusim - 4050630
+
+* Yani Troev - 3596644
+
